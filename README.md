@@ -1,0 +1,2 @@
+# beautypage
+Rare Beauty
